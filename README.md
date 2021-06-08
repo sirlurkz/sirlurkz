@@ -1,8 +1,6 @@
-- im bored :)
-- im a server owner for diferant platforms
-- i help people with resources
-- you should join my discord server https://discord.gg/s8au7DKRqr
-- and idk what else to put 
+- i own a fivem server and tryna become a big server with active people.
+- i am generally a nice person and enjoy helping people with stuff they struggle with
+- i am able to help you with anything you need.
 
 <!---
 sirlurkz/sirlurkz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
