@@ -1,6 +1,6 @@
-- i own a fivem server and tryna become a big server with active people.
-- i am generally a nice person and enjoy helping people with stuff they struggle with
-- i am able to help you with anything you need.
+- i am a paid fivem developer.
+- i am good at doing perms for servers building their sevrers with good recourses for a good price,
+- if you need a developer then hmu Lurkz™#9240
 
 <!---
 sirlurkz/sirlurkz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
