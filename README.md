@@ -1,6 +1,6 @@
 - i am a paid fivem developer.
 - i am good at doing perms for servers building their sevrers with good recourses for a good price,
-- if you need a developer then hmu Lurkz™#9240
+- if you need a developer then hmu Lurkz™#0001
 
 <!---
 sirlurkz/sirlurkz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
